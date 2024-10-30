@@ -6,6 +6,6 @@ Bem-Vindo ao meu Perfil 👁️👁️
 - Pretendo continuar trabalhando na área de adm;
 - Gosto de esportes em geral, pricipalmente vôlei, futebol e basquete;
 
-  ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTgS28bg3k3DLeyA64FR2CillY0EVpHHj15Ig&s)
+  ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTgS28bg3k3DLeyA64FR2CillY0EVpHHj15Ig&s)   ![](https://media.tenor.com/7_KRHOBcSnEAAAAM/happy-birthday-ashleigh.gif)
 
   thiago.borsuk@escola.pr.gov.br
